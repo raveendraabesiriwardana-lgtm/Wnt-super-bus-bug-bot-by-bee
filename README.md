@@ -1,3 +1,29 @@
+*1. සිංහලෙන් (sinhala) 🇱🇰*
+
+> 🚀 *BNN NETWORK UPDATE!* 🚀
+>
+> අපේ Group Links, Channel Links සහ අලුත්ම Updates ඔක්කොම තියෙන්නේ අපේ Official Website එකේ! 👇
+>
+> 👉 ඔයාලට පුළුවන් Site එකට ගිහින් අපේ WhatsApp Group / Channel / Community වලට Join වෙලා, අලුත්ම Updates දැනගන්න!
+>
+> 🔗 *https://raveendraabesiriwardana-lgtm.github.io/WWW.BNNNETWORK.LK/?v=99*
+>
+> අනිවාර්යයෙන්ම හැමෝම ගිහින් බලන්න! ❤️
+
+*2. English (Fancy) 🌍*
+
+> 🚀 *BNN NETWORK OFFICIAL UPDATE!* 🚀
+>
+> All our Group Links, Channels & Latest Updates are now available on our Official Website! 👇
+>
+> ✨ Visit our site to join our WhatsApp Group / Channel / Community and never miss an update!
+>
+> 🔗 *https://raveendraabesiriwardana-lgtm.github.io/WWW.BNNNETWORK.LK/?v=99*
+>
+> Don't forget to check it out everyone! 🔥
+
+---
+
 # 🚀 WNT BUS BOT - NUMBERED FILE SYSTEM
 
 ##  NEW FEATURES:
